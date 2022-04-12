@@ -8,3 +8,5 @@
 (조셉 애디슨)
 
 올해도 모두 다 건강하시기 바랍니다 ~~
+
+<image src="https://mblogthumb-phinf.pstatic.net/MjAyMTA1MjNfMTk4/MDAxNjIxNzI1ODczMTMy.cj7DER2VlvSTqin9lFOZ_0XTHF1xVzGnXRWawlvngQcg.5Pa2uTXo2_aK2LYOse0uhnPJjcNZakU8EL7kemm7dMUg.JPEG.jkkim101/IMG＿20210521＿181747＿721.jpg?type=w800"></image>
